@@ -1,0 +1,2 @@
+# ethicalking
+Am cool
